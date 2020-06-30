@@ -4,6 +4,10 @@ A photograph from Leon's apartment and the snake scale lead Deckard to a strip c
 * drinks whiskey
 * kills replicants
 * doesn't talk too much
+
 As Deckard said:
 > After I finished I couldn’t stop, 
 > because there would be nothing left after I stopped.
+
+<img src="https://upload.wikimedia.org/wikipedia/en/9/9f/Blade_Runner_%281982_poster%29.png"/>
+
